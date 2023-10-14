@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Awakenn1
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on telegram
+- 📫 Reach me from telegram https://t.me/awakenn0
